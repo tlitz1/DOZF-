@@ -1,0 +1,2 @@
+# DOZF-
+calculate your potential
